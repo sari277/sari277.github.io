@@ -1,6 +1,9 @@
 # Sariah Ismail
 
-[Email](sariah.777.si@gmail.com) [Phone](314-565-8445) 
+[Email](sariah.777.si@gmail.com) | [Phone](314-565-8445) | [Linkdin](www.linkedin.com/in/
+sariah-ismail-45320a146)
+
+
 **Address:** House:121, Road: 10, Nketon, Gulshan-1, Dhaka, Bangladesh
 
 ## Education
